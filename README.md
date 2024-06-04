@@ -1,1 +1,1 @@
-Koleksi logo channel untuk aplikasi IPTV Silahkan dipakai seperlunya ya.
+Koleksi logo channel untuk aplikasi OTT Navigator Silahkan dipakai seperlunya ya.
